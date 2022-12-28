@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **Python**
 
-- 📫 How to reach me **harithatmurali97@gmail.com**
+- 📫 How to reach me **DM on LinkedIn**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
